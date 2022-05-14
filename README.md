@@ -241,4 +241,4 @@ In addition to these rules; Unethical additions such as nudity, sexuality, insul
 More than 130,000 uses worldwide, and this all-age project demands innovations to match ethnic rules.
 
 ### Disclaimer
-`WhatsApp` name, its variations and the logo are registered trademarks of Facebook. We have nothing to do with the registered trademark
+`WhatsApp` name, its variations and the logo are registered trademarks of Facebook. We have nothing to do with the registered trademark 
